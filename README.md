@@ -1,7 +1,7 @@
--🙋‍♂️ Hola, soy Isaías González.. Nací en 🇻🇪 
--Soy músico desde temprana edad 🎶
--Siempre me han gustado los deportes 🎯
--Manso como paloma, astuto como serpiente ☯️
--Amigo del tiempo 🕰️ y de la espera..
+- 🙋‍♂️ Hola, soy Isaías González.. Nací en Venezuela
+- Soy músico desde temprana edad 🎶
+- Siempre me han gustado los deportes 🎯
+- Manso como paloma, astuto como serpiente ☯
+- Amigo del tiempo 🕰️ y de la espera..
 - 👂 Buen oyente
-- He descubierto que la mejor forma de seguir adelante es ayudando y dejandote ayudar 🚀.
+- He descubierto que la mejor forma de seguir adelante es ayudando y dejandote ayudar 🚀
